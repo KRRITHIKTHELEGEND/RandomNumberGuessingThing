@@ -1,2 +1,3 @@
-# RandomNumberGuessingThing
-4eth5eyrjhnjhgfdssssssssssssssssssssss
+# FOLLOW THE ORDER BELOW OR I WILL STILL YOUR COOKIES
+
+PRAY TO THE GREAT GOD KRRITHIK
